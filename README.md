@@ -25,7 +25,7 @@
 
 <br>
 
-## 📞 Connect with me
+## ☎️ Connect with me
 
 <h3 align="left">My Social Media</h3>
 <p align="left">
